@@ -2,7 +2,7 @@
 
 ## Se busca presidente de estado para dirigir España (2023-11-16)
 Las cualidades buscadas son las siguientes:
- - El candidato debe ser totalmente egonista. En caso de necesidad, debería ser capaz de traicionar a sus propios hijos y a su propia madre.
+ - El candidato debe ser totalmente egoísta. En caso de necesidad, debería ser capaz de traicionar a sus propios hijos y a su propia madre.
  - El candidato debe ser capaz de mentir reiteradamente, sin mostrar cansancio, ni remordimientos. Imprescindible que al hacerlo no le tiemble la voz y mantenga la mirada fija hacia las cámaras o
 personas a las que se dirija. Deberá ser capaz de permanecer impasible incluso si una gaviota le caga en su cabeza.
  - El candidato debe ser capaz de hablar durante varias horas seguidas sin decir nada en ningún momento. Es recomendable que esté familiarizado con técnicas de demagogia y discursos clásicos de
